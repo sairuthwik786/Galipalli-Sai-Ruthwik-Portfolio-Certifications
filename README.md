@@ -1,1 +1,1 @@
-# Galipalli-Sai-Ruthwik-Portfolio-Certifications
+# Galipalli Sai Ruthwik - Portfolio
